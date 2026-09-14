@@ -2,29 +2,28 @@
 
 Calm brand voice. Free download CTA → https://github.com/mikebelyea/minzystudios-freebies (folder `drops/2026-09-14/`).
 
-Do not post from automation — Mike owns social publish.
+Mike owns social publish. Claude may post with Mike OK clicks.
 
 ---
 
 ## X (Twitter)
 
-Tiamatt — free 4K desktop wallpaper.
+Tiamatt — free drop from Minzy Studios.
 
-Personal use. Quiet drop from Minzy Studios.
+4K desktop wallpaper. Personal use.
 
-Download: https://github.com/mikebelyea/minzystudios-freebies
+https://github.com/mikebelyea/minzystudios-freebies
 
 ---
 
 ## Instagram
 
 Tiamatt.
-A free desktop wallpaper from Minzy Studios.
+Free drop from Minzy Studios.
 
-3840×2160, plus 1440p and 1080p.
-For personal use.
+4K desktop wallpaper (+ 1440p / 1080p).
+Personal use.
 
-Link in bio / GitHub:
 github.com/mikebelyea/minzystudios-freebies
 
 #MinzyStudios #FreeWallpaper #DesktopArt
@@ -33,44 +32,36 @@ github.com/mikebelyea/minzystudios-freebies
 
 ## Threads
 
-Free wallpaper drop: Tiamatt.
+Tiamatt — free drop from Minzy Studios.
 
-4K desktop still. Personal use.
-Minzy Studios — quiet fantasy, no noise.
-
+4K desktop wallpaper. Personal use.
 github.com/mikebelyea/minzystudios-freebies
 
 ---
 
 ## TikTok
 
-Free desktop wallpaper — Tiamatt.
+Tiamatt — free drop from Minzy Studios.
 
-4K download on GitHub (Minzy Studios freebies).
-Personal use. Credit appreciated.
-
+4K wallpaper on GitHub. Personal use.
 github.com/mikebelyea/minzystudios-freebies
 
 ---
 
 ## Facebook
 
-New free wallpaper from Minzy Studios: **Tiamatt**.
+Tiamatt — free drop from Minzy Studios.
 
-Desktop sizes included (4K / 1440p / 1080p). Free for personal use. Credit appreciated.
+4K / 1440p / 1080p desktop wallpaper. Personal use. Credit appreciated.
 
-Download here:
 https://github.com/mikebelyea/minzystudios-freebies
-
-Questions: hello@minzystudios.com
+hello@minzystudios.com
 
 ---
 
 ## YouTube Community
 
-Free drop: Tiamatt desktop wallpaper (4K).
+Tiamatt — free drop from Minzy Studios.
 
-Personal use · Minzy Studios
+4K desktop wallpaper · personal use
 https://github.com/mikebelyea/minzystudios-freebies
-
-More at https://minzystudios.com

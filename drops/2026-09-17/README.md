@@ -1,8 +1,8 @@
-# Aurell — Tideglass Skimmer still
+# Aurell - Tideglass Skimmer still
 
 Free mystical pet still from **Minzy Studios**.
 
-**Aurell** is an original Tideglass Skimmer: dusk-violet otter-ray silhouette, translucent seaglass fins, soft teal bioluminescence. A calm moonlit tide-pool companion still for teens and young adults — not a product mascot, just a free giveaway image.
+**Aurell** is an original Tideglass Skimmer: dusk-violet otter-ray silhouette, translucent seaglass fins, soft teal bioluminescence. A calm moonlit tide-pool companion still for teens and young adults - not a product mascot, just a free giveaway image.
 
 ## What's in this drop
 
@@ -22,7 +22,7 @@ Mirrored under [`desktop-art/aurell/`](../../desktop-art/aurell/).
 
 ## License / use
 
-- **Art:** Free for **personal** use. Credit **Minzy Studios** appreciated — [https://minzystudios.com](https://minzystudios.com). Also offered under **CC BY 4.0** unless noted otherwise.
+- **Art:** Free for **personal** use. Credit **Minzy Studios** appreciated - [https://minzystudios.com](https://minzystudios.com). Also offered under **CC BY 4.0** unless noted otherwise.
 - Commercial / redistribution beyond personal use: ask hello@minzystudios.com.
 
 ## Credit

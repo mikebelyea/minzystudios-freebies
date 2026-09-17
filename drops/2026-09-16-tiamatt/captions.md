@@ -1,17 +1,16 @@
 # Captions — Tiamatt dual wallpaper (human + dragon)
 
-**Rule:** lead with / attach **her human** first. Dragon second. Never post dragon-only as the main tile.
-
 GitHub: https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-16-tiamatt
+
+Attach human portrait first, dragon second. Do not mention that order in the caption.
 
 ---
 
 ## X
 
-Tiamatt — free dual wallpaper drop from Minzy Studios.
+Tiamatt. Free wallpapers from Minzy Studios.
 
-Her form + dragon form. 4K. Personal use.
-(Human portrait is the cover — start there.)
+Her and her dragon form. 4K. Personal use.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-16-tiamatt
 
@@ -20,10 +19,10 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-16-t
 ## Instagram
 
 Tiamatt.
-Free dual wallpaper drop from Minzy Studios.
+Free wallpapers from Minzy Studios.
 
-Human + dragon. 4K / 1440p / 1080p.
-Personal use. Her portrait is the one to feature.
+Human and dragon. 4K / 1440p / 1080p.
+Personal use.
 
 github.com/mikebelyea/minzystudios-freebies
 
@@ -33,25 +32,26 @@ github.com/mikebelyea/minzystudios-freebies
 
 ## Threads
 
-Tiamatt — free dual wallpapers (human + dragon) from Minzy Studios.
-4K. Personal use. Feature her human portrait first.
+Tiamatt. Free wallpapers from Minzy Studios.
+
+Her and her dragon form. 4K. Personal use.
 github.com/mikebelyea/minzystudios-freebies
 
 ---
 
 ## TikTok
 
-Tiamatt free wallpapers — her + dragon form.
-4K on GitHub. Personal use. Her portrait is the cover.
+Tiamatt free wallpapers. Her and dragon form.
+4K on GitHub. Personal use.
 github.com/mikebelyea/minzystudios-freebies
 
 ---
 
 ## Facebook
 
-Tiamatt — free dual desktop wallpapers from Minzy Studios (human + dragon).
-4K / 1440p / 1080p. Personal use. Credit appreciated.
-Feature the human portrait if you only show one.
+Tiamatt. Free desktop wallpapers from Minzy Studios.
+
+Her and her dragon form. 4K / 1440p / 1080p. Personal use. Credit appreciated.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-16-tiamatt
 hello@minzystudios.com
@@ -60,6 +60,6 @@ hello@minzystudios.com
 
 ## YouTube Community
 
-Tiamatt dual wallpaper drop — human + dragon.
-4K · personal use · her portrait is the cover
+Tiamatt free wallpapers. Human and dragon.
+4K. Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-16-tiamatt

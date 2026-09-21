@@ -1,4 +1,4 @@
-# Captions — Oath Below wallpapers (2026-09-21)
+# Captions - Oath Below wallpapers (2026-09-21)
 
 Calm short brand voice. No em dashes. No AI babble.
 

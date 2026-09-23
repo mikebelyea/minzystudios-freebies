@@ -1,6 +1,8 @@
-# Captions - Sorra Glassfin ChatGPT pet pack (2026-09-23)
+# Captions - Aurelia Glassmoth wallpapers (2026-09-23)
 
-Calm brand voice. Free download CTA → https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
+Calm short brand voice. No em dashes. No AI babble.
+
+CTA: https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
 
 Mike owns social publish. Do NOT auto-post.
 
@@ -8,71 +10,61 @@ Mike owns social publish. Do NOT auto-post.
 
 ## X (Twitter)
 
-Sorra Glassfin - free drop from Minzy Studios.
+Free drop from Minzy Studios.
 
-ChatGPT pet pack: personality prompt + art.
+Aurelia Glassmoth. Three epic desktop wallpapers of a stained-glass moth in autumn meadow, bioluminescent dusk, and golden-hour canopy.
+
 Personal use.
-
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
 
 ---
 
 ## Instagram
 
-Sorra Glassfin.
+Aurelia Glassmoth.
 Free drop from Minzy Studios.
 
-ChatGPT companion pack - paste the prompt, optional reference art.
+Three desktop wallpapers, plus phone and square stills. Amber stained-glass wings over land and forest.
+
 Personal use.
 
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
 
-#MinzyStudios #ChatGPTPet #FreeDrop #AIArt
+#MinzyStudios #FreeWallpaper #AureliaGlassmoth
 
 ---
 
 ## Threads
 
-Sorra Glassfin - free drop from Minzy Studios.
+Free drop from Minzy Studios.
 
-ChatGPT pet pack (prompt + art). Personal use.
+Aurelia Glassmoth wallpapers for desktop and phone. Stained-glass moth, autumn light, quiet forest dusk.
+
+Personal use.
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
 
 ---
 
-## TikTok
+## Facebook (Minzy Studios Page)
 
-Sorra Glassfin - free ChatGPT pet from Minzy Studios.
+Free art drop from Minzy Studios.
 
-Prompt + art on GitHub. Personal use.
-github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
-
----
-
-## Facebook
-
-Sorra Glassfin - free drop from Minzy Studios.
-
-A ChatGPT companion pack: personality prompt plus portrait and tide-pool art. Personal use. Credit appreciated.
+Aurelia Glassmoth: three epic desktop wallpapers of a stained-glass moth at the autumn meadow edge, in bioluminescent dusk woodland, and through a golden-hour canopy. Phone crops and square stills included. Free for personal use. Credit appreciated.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
 hello@minzystudios.com
 
 ---
 
-## YouTube Community
+## LinkedIn
 
-Sorra Glassfin - free drop from Minzy Studios.
-
-ChatGPT pet pack · prompt + art · personal use
+Free creative drop from Minzy Studios: Aurelia Glassmoth desktop wallpapers (5376x3072), with phone and still crops. Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
 
 ---
 
-## LinkedIn
+## TikTok / Reels / Shorts (on-screen text)
 
-Sorra Glassfin - free creative drop from Minzy Studios.
-
-Today's giveaway is a ChatGPT companion pack (personality prompt + reference art) in our public freebies repo. Personal use; credit appreciated.
-
-https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-23
+Free Aurelia Glassmoth wallpapers
+Stained-glass moth, land and forest
+Link in bio

@@ -10,15 +10,18 @@ Body plan: bird (owl). Clear rotation away from fox, otter, mink, and moth silho
 
 | File | What it is |
 | --- | --- |
-| `art/nyxen-hollowquill-meadow-perch.png` | Desktop wallpaper, owl on fence at blue-hour meadow (1280x720) |
-| `art/nyxen-hollowquill-dusk-flight.png` | Desktop wallpaper, owl in flight over misty meadow (1280x720) |
-| `art/nyxen-hollowquill-portrait-still.png` | Square mystical still for phone / social (720x720) |
+| `art/nyxen-hollowquill-meadow-perch.png` | Desktop wallpaper, owl on fence at blue-hour meadow (**5120x2880**) |
+| `art/nyxen-hollowquill-dusk-flight.png` | Desktop wallpaper, owl in flight over misty meadow (**5120x2880**) |
+| `art/*.jpg` | Same two desktops as high-quality JPEG |
+| `art/nyxen-hollowquill-portrait-still.png` | Square mystical still for phone / social (**2048x2048**) |
+| `art/*-still.png` | Square stills (**2048x2048**) center-cropped from each desktop |
+| `art/*-phone.png` | Portrait phone crops (**1440x2560**) |
 | `captions.md` | Social caption drafts (Mike owns publish) |
 
 ## How to use
 
-1. Download a wide PNG for desktop / lock-screen wallpaper.
-2. Use the portrait still for mobile or social share.
+1. Download a wide PNG or JPG for desktop / lock-screen wallpaper.
+2. Use a still or phone crop for mobile or social share.
 3. Personal use. Credit Minzy Studios appreciated.
 
 ## License / use
@@ -31,7 +34,7 @@ Body plan: bird (owl). Clear rotation away from fox, otter, mink, and moth silho
 - Studio: [Minzy Studios](https://minzystudios.com)
 - Contact: hello@minzystudios.com
 - Creature: Nyxen Hollowquill (mystical barn owl, meadow dusk)
-- Art: Grok Imagine (AETHERION free-drop engine), 2026-09-24
+- Art: Grok Imagine (AETHERION free-drop engine), RealESRGAN_x4plus HQ, Photoshop epic wallpaper polish, 2026-09-24
 
 ## Download
 

@@ -12,7 +12,7 @@ Mike owns social publish. Do NOT auto-post.
 
 Free drop from Minzy Studios.
 
-Nyxen Hollowquill. Two epic desktop wallpapers plus a portrait still of a mystical barn owl at meadow dusk.
+Nyxen Hollowquill. Two epic 5K desktop wallpapers plus stills of a mystical barn owl at meadow dusk.
 
 Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
@@ -24,7 +24,7 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 Nyxen Hollowquill.
 Free drop from Minzy Studios.
 
-Desktop wallpapers and a square still. Quiet barn owl, translucent quills, meadow blue hour.
+Desktop wallpapers (5120x2880), phone crops, and square stills. Quiet barn owl, translucent quills, meadow blue hour.
 
 Personal use.
 
@@ -49,7 +49,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 
 Free art drop from Minzy Studios.
 
-Nyxen Hollowquill: two epic desktop wallpapers of a mystical barn owl perched at blue hour and gliding over a misty meadow, plus a portrait still. Free for personal use. Credit appreciated.
+Nyxen Hollowquill: two epic 5K desktop wallpapers of a mystical barn owl perched at blue hour and gliding over a misty meadow, plus stills and phone crops. Free for personal use. Credit appreciated.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 hello@minzystudios.com
@@ -58,7 +58,7 @@ hello@minzystudios.com
 
 ## LinkedIn
 
-Free creative drop from Minzy Studios: Nyxen Hollowquill desktop wallpapers (1280x720) with a portrait still. Personal use.
+Free creative drop from Minzy Studios: Nyxen Hollowquill desktop wallpapers (5120x2880) with stills and phone crops. Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 
 ---
@@ -75,6 +75,6 @@ Link in bio
 
 Free Minzy Studios drop: Nyxen Hollowquill wallpapers.
 
-Mystical barn owl at meadow dusk. Two desktops plus a portrait still. Personal use.
+Mystical barn owl at meadow dusk. Two 5K desktops plus stills and phone crops. Personal use.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24

@@ -1,18 +1,16 @@
 # Captions - Nyxen Hollowquill wallpapers (2026-09-24)
 
-Calm short brand voice. No em dashes. No AI babble.
+Calm short brand voice. No em dashes. Human, not AI babble.
 
 CTA: https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
-
-Mike owns social publish. Do NOT auto-post.
 
 ---
 
 ## X (Twitter)
 
-Free drop from Minzy Studios.
+Free wallpapers from Minzy Studios.
 
-Nyxen Hollowquill. Two epic 5K desktop wallpapers plus stills of a mystical barn owl at meadow dusk.
+Nyxen Hollowquill. A barn owl at meadow dusk, with a little glass in the feathers. Two big desktop images plus stills.
 
 Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
@@ -21,13 +19,12 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 
 ## Instagram
 
-Nyxen Hollowquill.
-Free drop from Minzy Studios.
+Nyxen Hollowquill
+Free drop from Minzy Studios
 
-Desktop wallpapers (5120x2880), phone crops, and square stills. Quiet barn owl, translucent quills, meadow blue hour.
+Quiet barn owl. Meadow blue hour. Desktop, phone, and square stills if you want them.
 
 Personal use.
-
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 
 #MinzyStudios #FreeWallpaper #NyxenHollowquill
@@ -38,7 +35,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 
 Free drop from Minzy Studios.
 
-Nyxen Hollowquill wallpapers for desktop and phone. Mystical barn owl over a quiet meadow at dusk.
+Nyxen Hollowquill wallpapers. Barn owl over a meadow at dusk. Desktop and phone.
 
 Personal use.
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
@@ -47,9 +44,9 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 
 ## Facebook (Minzy Studios Page)
 
-Free art drop from Minzy Studios.
+Free art from Minzy Studios.
 
-Nyxen Hollowquill: two epic 5K desktop wallpapers of a mystical barn owl perched at blue hour and gliding over a misty meadow, plus stills and phone crops. Free for personal use. Credit appreciated.
+Meet Nyxen Hollowquill. Barn owl at blue hour on a fence, and another flying over a misty meadow. Desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
 hello@minzystudios.com
@@ -58,23 +55,15 @@ hello@minzystudios.com
 
 ## LinkedIn
 
-Free creative drop from Minzy Studios: Nyxen Hollowquill desktop wallpapers (5120x2880) with stills and phone crops. Personal use.
+New free creative drop from Minzy Studios: Nyxen Hollowquill. Barn owl wallpapers for desktop, plus stills and phone crops. Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24
-
----
-
-## TikTok / Reels / Shorts (on-screen text)
-
-Free Nyxen Hollowquill wallpapers
-Mystical barn owl, meadow dusk
-Link in bio
 
 ---
 
 ## YouTube Community
 
-Free Minzy Studios drop: Nyxen Hollowquill wallpapers.
+Free Minzy Studios drop: Nyxen Hollowquill.
 
-Mystical barn owl at meadow dusk. Two 5K desktops plus stills and phone crops. Personal use.
+Barn owl at meadow dusk. Two desktop wallpapers plus stills and phone crops. Personal use.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-24

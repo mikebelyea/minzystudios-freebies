@@ -1,6 +1,6 @@
 # Captions - Sylrix Mossglass wallpapers (2026-09-25)
 
-Calm short brand voice. No em dashes. Human, not AI babble.
+Calm short Minzy voice. No em dashes. Human, not stiff.
 
 CTA: https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
 
@@ -10,7 +10,7 @@ CTA: https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09
 
 Free wallpapers from Minzy Studios.
 
-Sylrix Mossglass. A moss-glass skink at meadow dawn. Two big desktop images plus stills.
+Sylrix Mossglass. Quiet skink on warm stone. Emerald glass and soft moss at dawn. Two big desktops plus stills.
 
 Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
@@ -22,7 +22,9 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
 Sylrix Mossglass
 Free drop from Minzy Studios
 
-Quiet skink. Meadow dawn dew. Desktop, phone, and square stills if you want them.
+Dew on ferns. Moss along the spine. Soft meadow light.
+
+Desktop, phone, and square stills if you want them.
 
 Personal use.
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
@@ -35,7 +37,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
 
 Free drop from Minzy Studios.
 
-Sylrix Mossglass wallpapers. Moss-glass skink in a quiet meadow at dawn. Desktop and phone.
+Sylrix Mossglass. A little moss-glass skink in the dawn grass. Desktop and phone sizes ready.
 
 Personal use.
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
@@ -46,7 +48,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
 
 Free art from Minzy Studios.
 
-Meet Sylrix Mossglass. A mystical skink with translucent emerald and amber scales, soft moss along the spine, at meadow dawn. Desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
+Sylrix Mossglass is out. A moss-glass skink in meadow dawn light. Translucent emerald and amber scales, soft moss along the spine. Two desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-25
 hello@minzystudios.com

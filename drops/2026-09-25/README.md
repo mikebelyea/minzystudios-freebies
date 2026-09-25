@@ -34,7 +34,7 @@ Body plan: reptile (skink / small lizard). Clear rotation away from fox, otter, 
 - Studio: [Minzy Studios](https://minzystudios.com)
 - Contact: hello@minzystudios.com
 - Creature: Sylrix Mossglass (mystical moss-glass skink, meadow dawn)
-- Art: Flux schnell (AETHERION free-drop engine), RealESRGAN_x4plus HQ, 2026-09-25
+- Art: Flux schnell (AETHERION free-drop engine), RealESRGAN_x4plus HQ, Photoshop epic wallpaper polish, 2026-09-25
 
 ## Download
 

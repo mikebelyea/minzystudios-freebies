@@ -10,7 +10,7 @@ CTA: https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09
 
 Free wallpapers from Minzy Studios.
 
-Corvin Glasspine. A crystalline porcupine at forest dusk. Glass quills. Violet and amber light. Two big desktops plus stills.
+Corvin Glasspine. A glass-quill porcupine at forest dusk. Soft violet light on the spines. Two big desktops plus stills.
 
 Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
@@ -20,9 +20,9 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-e
 ## Instagram
 
 Corvin Glasspine
-Free evening drop from Minzy Studios
+Free drop from Minzy Studios
 
-Glass quills. Forest dusk. Quiet violet-amber glow.
+Glass quills. Forest dusk. Soft violet light.
 
 Desktop, phone, and square stills if you want them.
 
@@ -35,7 +35,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
 ## Threads
 
-Free evening drop from Minzy Studios.
+Free drop from Minzy Studios.
 
 Corvin Glasspine. A little glass-quill porcupine in the dusk forest. Desktop and phone sizes ready.
 
@@ -48,7 +48,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
 Free art from Minzy Studios.
 
-Corvin Glasspine is out (evening drop). A mystical crystalline porcupine in forest dusk light. Translucent glass quills catching cool violet and amber. Two desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
+Corvin Glasspine is out. A glass-quill porcupine in forest dusk light. Soft violet and amber on the spines. Two desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 hello@minzystudios.com
@@ -57,14 +57,14 @@ hello@minzystudios.com
 
 ## LinkedIn
 
-New free creative evening drop from Minzy Studios: Corvin Glasspine. Crystalline porcupine wallpapers for desktop, plus stills and phone crops. Personal use.
+New free creative drop from Minzy Studios: Corvin Glasspine. Glass-quill porcupine wallpapers for desktop, plus stills and phone crops. Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
 ---
 
 ## YouTube Community
 
-Free Minzy Studios evening drop: Corvin Glasspine.
+Free Minzy Studios drop: Corvin Glasspine.
 
 Glass-quill porcupine at forest dusk. Two desktop wallpapers plus stills and phone crops. Personal use.
 
@@ -74,6 +74,6 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-e
 
 ## TikTok (optional short)
 
-Free evening wallpaper drop from Minzy Studios.
+Free wallpaper drop from Minzy Studios.
 
 Corvin Glasspine. Forest dusk glass-quill porcupine. Link in bio / GitHub freebies.

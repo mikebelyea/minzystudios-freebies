@@ -34,7 +34,7 @@ Body plan: plant spirit / flower dryad. Clear rotation away from moth, owl, skin
 - Studio: [Minzy Studios](https://minzystudios.com)
 - Contact: hello@minzystudios.com
 - Creature: Briarwyn Dewbloom (mystical blossoming plant spirit / living flower dryad, soft dawn meadow mist)
-- Art: Flux schnell (AETHERION free-drop engine), RealESRGAN_x4plus HQ, 2026-09-27
+- Art: Flux schnell (AETHERION free-drop engine), RealESRGAN_x4plus HQ, Photoshop epic wallpaper polish, 2026-09-27
 
 ## Download
 

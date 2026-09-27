@@ -34,7 +34,7 @@ Body plan: insect (stag beetle). Clear rotation away from moth, owl, skink, fox,
 - Studio: [Minzy Studios](https://minzystudios.com)
 - Contact: hello@minzystudios.com
 - Creature: Kaelith Emberstag (mystical crystalline stained-glass stag beetle, meadow dusk)
-- Art: Flux schnell (AETHERION free-drop engine), RealESRGAN_x4plus HQ, 2026-09-26
+- Art: Flux schnell (AETHERION free-drop engine), RealESRGAN_x4plus HQ, Photoshop epic wallpaper polish, 2026-09-26
 
 ## Download
 

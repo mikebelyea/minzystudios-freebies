@@ -1,4 +1,4 @@
-# Captions - Mirelle Coilglass wallpapers (2026-09-27 evening)
+# Captions - Corvin Glasspine wallpapers (2026-09-27 evening)
 
 Calm short Minzy voice. No em dashes. Human, not stiff.
 
@@ -10,7 +10,7 @@ CTA: https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09
 
 Free wallpapers from Minzy Studios.
 
-Mirelle Coilglass. A moss-glass garden snail at meadow dawn. Soft emerald spiral. Cool green dew. Two big desktops plus stills.
+Corvin Glasspine. A crystalline porcupine at forest dusk. Glass quills. Violet and amber light. Two big desktops plus stills.
 
 Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
@@ -19,17 +19,17 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-e
 
 ## Instagram
 
-Mirelle Coilglass
+Corvin Glasspine
 Free evening drop from Minzy Studios
 
-Emerald spiral shell. Soft mist. Quiet cool-green dew.
+Glass quills. Forest dusk. Quiet violet-amber glow.
 
 Desktop, phone, and square stills if you want them.
 
 Personal use.
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
-#MinzyStudios #FreeWallpaper #MirelleCoilglass
+#MinzyStudios #FreeWallpaper #CorvinGlasspine
 
 ---
 
@@ -37,7 +37,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
 Free evening drop from Minzy Studios.
 
-Mirelle Coilglass. A little moss-glass garden snail in the dawn mist. Desktop and phone sizes ready.
+Corvin Glasspine. A little glass-quill porcupine in the dusk forest. Desktop and phone sizes ready.
 
 Personal use.
 github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
@@ -48,7 +48,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
 Free art from Minzy Studios.
 
-Mirelle Coilglass is out (evening drop). A mystical moss-glass garden snail in soft meadow dawn light. Translucent emerald spiral shell catching cool green dew. Two desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
+Corvin Glasspine is out (evening drop). A mystical crystalline porcupine in forest dusk light. Translucent glass quills catching cool violet and amber. Two desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 hello@minzystudios.com
@@ -57,16 +57,16 @@ hello@minzystudios.com
 
 ## LinkedIn
 
-New free creative evening drop from Minzy Studios: Mirelle Coilglass. Moss-glass garden snail wallpapers for desktop, plus stills and phone crops. Personal use.
+New free creative evening drop from Minzy Studios: Corvin Glasspine. Crystalline porcupine wallpapers for desktop, plus stills and phone crops. Personal use.
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
 ---
 
 ## YouTube Community
 
-Free Minzy Studios evening drop: Mirelle Coilglass.
+Free Minzy Studios evening drop: Corvin Glasspine.
 
-Moss-glass garden snail at meadow dawn. Two desktop wallpapers plus stills and phone crops. Personal use.
+Glass-quill porcupine at forest dusk. Two desktop wallpapers plus stills and phone crops. Personal use.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-evening
 
@@ -76,4 +76,4 @@ https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-27-e
 
 Free evening wallpaper drop from Minzy Studios.
 
-Mirelle Coilglass. Meadow dawn moss-glass snail. Link in bio / GitHub freebies.
+Corvin Glasspine. Forest dusk glass-quill porcupine. Link in bio / GitHub freebies.

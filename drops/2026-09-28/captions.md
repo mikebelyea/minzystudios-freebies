@@ -48,7 +48,7 @@ github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-28
 
 Free art from Minzy Studios.
 
-Mirelle Coilglass is out. A moss-glass garden snail in soft meadow dawn light. Translucent emerald spiral shell catching cool green dew. Two desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
+Mirelle Coilglass is out. A moss-glass garden snail in soft meadow dawn light. Soft emerald spiral and cool green dew. Two desktop wallpapers, stills, and phone crops. Free for personal use. Credit appreciated if you share.
 
 https://github.com/mikebelyea/minzystudios-freebies/tree/main/drops/2026-09-28
 hello@minzystudios.com

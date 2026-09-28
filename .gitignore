@@ -1,0 +1,9 @@
+# Raw, unreleased art: never public (see DECISIONS.md, 2026-09-28)
+staging/
+
+.DS_Store
+.env*
+!.env.example
+*.p8
+*.pem
+*.keystore
